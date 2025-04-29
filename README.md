@@ -1,7 +1,1 @@
-Gómez Piceno Louis Bernardino 
-
-
-Martinez Ramos Santiago 
-
-
-2AMPr
+Gómez Piceno Louis Bernardino 2AMPr
